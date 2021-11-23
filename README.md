@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @PauluBabayko
-- 👀 I’m interested  пчеловодство,  java
+- 👀 I’m interested  honey, bees,  java
 - 🌱 I’m currently learning java
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
